@@ -1,4 +1,4 @@
-# Hi, I'm Adarsh Ramat
+# Hi, I'm Adarsh R
 
 ### Business Development & Growth Enablement | GTM Strategy & Partnerships | Marketplace Transformation & Procurement
 
